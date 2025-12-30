@@ -1,4 +1,4 @@
-# Mohammad-Hamad-Wani
+# Hey there!I am Hammad
 🎓BCA Student @ Islamia College of Science and Commerce Srinagar  
 📆Class of 2026  
 🌐Exploring Web Development & Open Source  
